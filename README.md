@@ -10,6 +10,7 @@ I'm not that creative, i am sensitive, and a cupioromantic.
 
 — My likes 🍥
 > Drawing, painting, reading, writing, friends, gore(Includes cutegore), sleeping 😴,cats, bunnies, etc.
+
 — My dislikes 🗯️
 > pedophile, zoophile, rapists, homophobic, toxic, skibidi jokes, helluva boss/hazbin hotel irl's, transphobic, criticize art, proships, rare ships(Not unless friends), etc.
 
